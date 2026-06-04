@@ -1,1 +1,2 @@
-최승훈
+2014XXX CHoi SeungHoon
+Kookmin Uniw.SW
